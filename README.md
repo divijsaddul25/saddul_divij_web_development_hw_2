@@ -1,1 +1,0 @@
-# saddul_divij_web_development_hw_2
